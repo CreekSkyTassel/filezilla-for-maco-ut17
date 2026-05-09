@@ -1,4 +1,4 @@
-
+Cyberduck for macOS best Extension: permission-management & search-functionality is the best Cyberduck for macOS extension, featuring permission-management and
 
 
 
